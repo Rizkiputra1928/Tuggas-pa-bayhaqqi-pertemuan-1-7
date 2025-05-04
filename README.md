@@ -1,0 +1,1 @@
+# Tuggas-pa-bayhaqqi-pertemuan-1-7
